@@ -4,7 +4,7 @@
 
 http://www.bownehouse.org/flushing_remonstrance.htm
 
-In 1656, Governor Peter Stuyvesant passed an Ordinance declaring that any person entertaining a Quaker Meeting House for a single night was to be fined, and that vessels bringing any Quaker into the province would be confiscated. Sentiment grew in Flushing to oppose this infringement upon the right to enjoy liberty of conscience as provided in the town charter. It was decided to send a remonstrance to the governor in protest of his action.  HI!
+In 1656, Governor Peter Stuyvesant passed an Ordinance declaring that any person entertaining a Quaker Meeting House for a single night was to be fined, and that vessels bringing any Quaker into the province would be confiscated. Sentiment grew in Flushing to oppose this infringement upon the right to enjoy liberty of conscience as provided in the town charter. It was decided to send a remonstrance to the governor in protest of his action.
 
 
 

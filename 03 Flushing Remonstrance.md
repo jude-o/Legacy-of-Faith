@@ -1,24 +1,19 @@
-
-
-##Flushing Remonstrance
+#Flushing Remonstrance
 
 http://www.bownehouse.org/flushing_remonstrance.htm
 
 In 1656, Governor Peter Stuyvesant passed an Ordinance declaring that any person entertaining a Quaker Meeting House for a single night was to be fined, and that vessels bringing any Quaker into the province would be confiscated. Sentiment grew in Flushing to oppose this infringement upon the right to enjoy liberty of conscience as provided in the town charter. It was decided to send a remonstrance to the governor in protest of his action.
 
-
-
 John Bowne was not a signer of the Remonstrance, but he must have surely agreed with his fellow Flushing residents who did. In 1662, he was arrested for out-rightly defying the governor's ban by allowing Quakers to worship in his home.
 
 The original Remonstrance manuscript is kept in the Manuscripts and History Section of the New York State Library in Albany, where it was damaged in a 1911 fire in the Capitol archives. A 21st century rendering of the Remonstrance follows.
 
-REMONSTRANCE
+##REMONSTRANCE
 
 Of the Inhabitants of the Town of Flushing To Governor Stuyvesant
 December 27, 1657
 
 Right Honorable,
-
 
 You have been pleased to send up unto us a certain prohibition or command that we should not receive or entertain any of those people called Quakers because they are supposed to be by some, seducers of the people. For our part we cannot condemn them in this case, neither can we stretch out our hands against them, to punish, banish or persucute them, for out of Christ god is a consuming fire, and it is a fearful thing to fall into the hands of the living God.
 

@@ -1,4 +1,4 @@
-#The Cox’s and Cadwalladers
+#The Coxes and Cadwalladers
 
 
 Edith’s mother was Martha Cox and her father was Isaac Cadwallader.	Martha’s father was John Cox and her mother was Jane Thompson.	The Cox’s had settled in Madison Twp, Franklin County, Ohio.	John Cox served as Justice of the Peace and helped to settle this township.		The Cox’s and Cadwallader ‘s are 2 other Quaker lines that Leah Huddleston and I have traced.	Isaac was in the Civil war as Edith states and her parents were married in Ohio after the civil war.	I wish I could have found Isaac in a census record in 1870. The obit of Ida Cadwallader Hearn says that her parents brought her to Jay County when she was a child. The first wife we believe to be Sarah Jane Pennock, the Pennock’s were another Quaker line.	Isaac and Martha certainly did not continue on in the Quaker faith. Several family members on this line became Methodists.	The obituaries that I found on Edwin shows that he was a faithful Methodist to the end. He died in Ridgeville, Randolph, Indiana in 1938.	This obit was a very precious piece of evidence, corroborating the evidence to the Hearn’s, and Huddleston’s & Pennock family members.
